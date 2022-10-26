@@ -1,0 +1,3 @@
+- 👋 Hola, soy Angel Enrique Martinez Alvarez de 5C
+- 👀 Esta es mi primera practica
+- 🌱 Aqui estaré bien
